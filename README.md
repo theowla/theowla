@@ -33,9 +33,6 @@ Known for strong communication, teamwork, and problem-solving skills, I excel in
 - 🇬🇧 English: Advanced  
 - 🇪🇸 Spanish: Native  
 
-## 🏋️ Fun Fact:
-I’m also passionate about weightlifting and love balancing my tech work with fitness! 💪
-
 
 
 <!---
